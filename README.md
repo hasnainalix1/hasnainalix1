@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm Website | Frontend Developer <br>Looking for Collabs<br>I'm currently learning<br>Ask Me Anything <br>Photography | Tours
+I'm Website Designer | Frontend Developer <br>Looking for Collabs<br>I'm currently learning<br>Ask Me Anything <br>Photography | Tours
 
 
 ## 🌐 Socials:
